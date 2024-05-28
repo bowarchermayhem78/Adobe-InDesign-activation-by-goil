@@ -1,0 +1,1 @@
+# Adobe-InDesign-activation-by-goil
